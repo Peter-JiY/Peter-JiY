@@ -42,7 +42,7 @@ If you are interested in my work or have any questions, feel free to reach out:
 
 - **Email**: [Not Available Yet] 📧
 - **LinkedIn**: [None] 🚫
-- **GitHub**: [Not Available Yet] 🌐
+- **Phone**: [Not Available Yet] 🌐
 
 ---
 
